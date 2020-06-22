@@ -9,3 +9,4 @@ Das Schweigen der Lämmer ist ein US-amerikanischer Spielfilm aus dem Jahr 1991.
 * Flüchtete vom Onkel
 ## Zitat
 > Quit Pro Quo!
+<img src="https://www.mopo.de/image/33734364/2x1/940/470/5f114b6889ade311d137e2eb6fa04895/Mm/schweigen-der-laemmer.jpg"/>
