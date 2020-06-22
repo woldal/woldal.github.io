@@ -1,1 +1,2 @@
-# Das Schweigen der Lämmer
+# Clarice Starling - Das Schweigen der Lämmer
+Das Schweigen der Lämmer ist ein US-amerikanischer Spielfilm aus dem Jahr 1991. Der Thriller erzählt davon, wie die FBI-Agentenanwärterin Clarice Starling den Serienmörder Buffalo Bill zur Strecke bringt, jedoch nur mit Hilfe eines anderen Serienmörders, des kannibalistisch veranlagten Psychiaters Hannibal Lecter.
